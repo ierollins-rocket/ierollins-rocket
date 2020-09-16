@@ -9,5 +9,4 @@ Here's what I'm currently working on:
 - 💬 Ask me about ...my journey into VC
 - 📫 How to reach me: ...israel@rplabs.co
 - 😄 Pronouns: ...he/him/his
-- ⚡ Fun fact: ...I'm a Florida man
--->
+- ⚡ Fun fact: ...I'm a Florida man, in a good way, not the HMB-way 😎!
