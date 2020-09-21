@@ -1,5 +1,5 @@
 ### Hi there 👋
-I'm [Israel Rollins](https://www.linkedin.com/in/israelrollins/)
+I'm [Israel Rollins](https://www.linkedin.com/in/israelrollins/).
 Here's what I'm currently working on:
 
 - 🔭 I’m currently working on ... NEW FUND NOW OPEN FOR INVESTMENT - Rocket Propulsion Labs
