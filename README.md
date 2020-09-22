@@ -11,4 +11,4 @@ Here's what I'm currently working on:
 - 💬 Ask me about ... my journey into VC
 - 📫 How to reach me: ... israel@rplabs.co
 - 😄 Pronouns: ... he/him/his
-- ⚡ Fun fact: ... I'm a Florida man; in a good way, not the HMB-way 😎!
+- ⚡ Fun fact: ... I'm a 2x HBCU grad [Howard](https://home.howard.edu/), [FAMU](https://www.famu.edu/) 😎!
