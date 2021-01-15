@@ -2,7 +2,7 @@
 I'm [Israel Rollins](https://www.linkedin.com/in/israelrollins/).
 Here's what I'm currently working on:
 
-- 🔭 I’m currently working on ... NEW FUND NOW OPEN FOR INVESTMENT - Rocket Propulsion Labs 
+- 🔭 I’m currently working on ... NEW LATE STAGE AND GROWTH EQUITY FUND NOW OPEN FOR INVESTMENT - Rocket Propulsion Labs 
 - 💲  LPs, click here to invest => [AngelList RPLabs](https://angel.co/v/back/rocket-propulsion-labs-fund)
 - 🚀 Founders, click here to submit pitch deck => [deck](https://bit.ly/2ZN8ctn) 
 - 🌱 I’m currently learning ... Github
